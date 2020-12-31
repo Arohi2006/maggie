@@ -1,0 +1,1 @@
+This recipe is nothing complicated. Its just about how to make Maggie. To make Magie you just have to boil the noodles and add the masala,  but for taste you can add some veggies too.  
